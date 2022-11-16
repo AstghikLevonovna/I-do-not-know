@@ -1,3 +1,3 @@
 I know. that I know nothing...
-If you know something I don't know, please do not be ashamed, share with me your knowledge...))))
+If you know something, please do not be ashamed, share with me your knowledge...))))
 Read lessons.
